@@ -1,1 +1,1 @@
-# magical-web
+# https://alokik-here.github.io/magical-web/
